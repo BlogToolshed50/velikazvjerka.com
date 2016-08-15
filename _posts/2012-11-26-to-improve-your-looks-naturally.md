@@ -1,0 +1,18 @@
+---
+id: 1049
+title: To Improve Your Looks Naturally
+date: 2012-11-26T03:56:00+00:00
+author: admin
+layout: post
+guid: http://www.velikazvjerka.com/?p=1049
+permalink: /2012/11/26/to-improve-your-looks-naturally/
+categories:
+  - General
+---
+Aloe Vera is the most prestigious herb used for skin care. It contains almost 20 amino acids, minerals like calcium, magnesium and sodium in sufficient quantities, enzymes, vitamins, polysaccharides, nitrogen and other components that make it a miracle beauty herb. It prevents injury to epithelial tissues and promotes healing of injured tissues. An epithelium is a layer of cells that covers the body. Our largest epithelium is the skin and one of the main applications of Aloe Vera is to soothe a variety of skin ailments such as mild cuts, insect stings, bruises, Poison Ivy and eczema. It also has antibacterial and anti fungal qualities, and increases blood flow to wounded areas. In addition, it also stimulates fibroblasts, the skin cells responsible for wound healing and the manufacture of collagen, the protein that controls the aging process of the skin and wrinkling. The skin absorbs Aloe Vera up to four times faster than water. 
+
+Aloe Vera makes hair thick and healthy and it is being used for hair conditioning since more than thousand years. It contains lot of enzymes that are beneficial for hair growth. It acts as a natural hair conditioner and can be used in place of chemical based conditioners. For healthier looking hair the fewer chemicals people expose to their hair its better. It is also used as a treatment for hair loss because it stimulates new hair production and can even fight against alopecia. Additionally, it is also a good treatment for scaly/itchy scalps, oily hair and dandruff. It also works very well as an anti-frizz product. People can use it in many different ways. Drink two to four ounces of Aloe Vera juice a day on empty stomach. Drinking the juice daily can help improve digestion, blood circulation and detoxify the body and cleanse the colon. 
+
+How To Use Aloe Vera Gel? Apply the gel directly from leaf for general skin care. The gel also has the ability to soothe pain and regenerate skin cells to promote healing with no or little scaring. Apply gel two to three times a day to the wounded area until it is healed. The gel taken from the plant can also be combined with wheat-germ oil and safflower flower to reduce bruising. Applying the gel to the scalp is a good treatment for dandruff and hair loss. Apply the gel directly to damaged or diseased gums to reduce inflammation, pain, and to promote healing. Tooth-Care And Eye-Care Include the gel in dental hygiene regimens to help fight tooth decay and reduce plaque. To create eyewash, dissolve half tablespoon of powdered gel in one cup of water. To accelerate the healing process add one teaspoon of boric acid. Pour the solution through a coffee filter before applying to the eyes. 
+
+An ultimate healing agent Because the gel of the Aloe Vera plant is known to absorb quickly into the skin and reduce inflammation and pain, it also works well on sprains, strains, muscle pains and arthritic pain. Apply the gel along with a cold compress to the sore area two to three times per day. Overall, Aloe Vera is a wonderful supplement for creating a naturally healthy skin and it should be integrated in your daily skin care regimen. Amy C. loves to write about health, fitness, beauty, and balanced lifestyle. She has a backyard garden in which she plants her own herbs and vegetables. Her experiences with gardening gives her a perspective on Aloe Vera plant care and maintenance, its benefits, and its applications.
